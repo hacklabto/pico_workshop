@@ -1,0 +1,1 @@
+Snap Together Robotic Claw with Grip Pads! by neoaikon on Thingiverse: https://www.thingiverse.com/thing:1747069
